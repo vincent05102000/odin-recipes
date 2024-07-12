@@ -1,0 +1,1 @@
+I am practing coding and do the assignment that provided by ODINPROJECT
